@@ -1,3 +1,3 @@
-# Photoshop2025
+# Photoshop2026
 
-https://drive.google.com/drive/folders/14qsDw2jaX-UrKJcDnoIYJeM0hfQJjWeA?usp=drive_link
+https://drive.google.com/drive/folders/1DKhTOGXr_PuqD4jmRzw3HVC-YJtEoQgo?usp=sharing
